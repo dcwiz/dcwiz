@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 my name is Connor
 
 <h2>💻 Some stats 💻</h2>
 
